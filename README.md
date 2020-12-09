@@ -1,2 +1,2 @@
 # Romnick-Salviejo
-Attending school is not optional for most student
+Hair and Make Up Artista
